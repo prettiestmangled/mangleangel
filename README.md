@@ -16,7 +16,7 @@
 
 ###
 
-<p align="center">૮₍'˶• . •⑅₎ა she/they 🌸♫彡<br>ヽ🎀 read strawpages/carrd!!! ^_^<br>౨ৎ ⋆ ｡˚ 💌⸝⸝<br>🍰 living dead girl . prettiest <br>when i'm mangled! 🩰</p>
+<p align="center">૮₍'˶• . •⑅₎ა she/they 🌸♫彡<br>ヽ🎀 read strawpage/carrd!!! ^_^<br>౨ৎ ⋆ ｡˚ 💌⸝⸝<br>🍰 living dead girl . prettiest <br>when i'm mangled! 🩰</p>
 
 ###
 
